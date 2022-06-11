@@ -1,4 +1,4 @@
-### H O L A, Soy Carlos ALvarado 😎
+### H O L A, Soy Carlos Alvarado 😎
 #### Desarrollador junior Full-stack 💻 actualmente en **búsqueda activa** de empleo
 ### Psicológo "Análista de la Conducta" 🧠
 
